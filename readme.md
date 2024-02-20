@@ -1,6 +1,8 @@
-Existential crisis: Why is there anything instead of nothing, and why isn't there nothing instead of everything
+Existential crisis: Why is there anything instead of nothing, and why isn't there nothing instead of everything?
 
-Any and all answers will break existence but one.
+First understand why these questions are important before reading.
+
+Any and all answers will break existence but one. I will be solving existence in this writing.
 
 They say the answer is hidden in the question. So how is it that we simply can’t solve existence? Current attempts currently don’t come close
 No; science, physics, medicine, quantum mechanics—appear to be stuck in an endless loop, offering no solutions to this crisis. These disciplines, lead us down a path of reductionism — do you think that if you identified
@@ -17,3 +19,5 @@ With this dimension, the binary of 0 and 1 breakdown, offering a glimpse into a 
 This solve transcends traditional science, offering an explanation for existence that leaves no room for doubt. Far from being a humble acknowledgment of our limitations, it is a bold declaration of understanding, firmly placing the essence of existence within our grasp.
 
 -PlanetRenox 2024.02.20
+
+So reality has more to it than the universe that we can currently see? 
